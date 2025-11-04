@@ -1,6 +1,7 @@
 ghbdtn
 
 
-![photo_2025-09-12_21-11-43](https://github.com/user-attachments/assets/17f6521e-8fef-475b-9ad7-5738748fc701)
+![video_2025-11-04_11-55-12](https://github.com/user-attachments/assets/f0f1e7f3-2bbf-45ee-8e38-e33886535640)
+
 
 

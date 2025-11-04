@@ -1,3 +1,5 @@
+!! ВСЕ К ДАНЬКЕ ВСЕ К ДАНЬКЕ !!
+https://t.me/umchuhnya
 ghbdtn
 
 

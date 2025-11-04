@@ -5,7 +5,7 @@ ghbdtn
 
 
 
-дружелюбен и вменяем и мил и как эту херь оформлять короче 
+как ето оформля т
 
 ![Leo_Tsukinaga_2](https://github.com/user-attachments/assets/96ec6ca4-e63a-480e-ac7d-530cda09ca4d)
 

@@ -1,5 +1,5 @@
 !! ВСЕ К ДАНЬКЕ ВСЕ К ДАНЬКЕ !!
-https://t.me/umchuhnya
+https://t.me/ousamaleo
 ghbdtn
 
 
